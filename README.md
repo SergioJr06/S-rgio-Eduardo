@@ -1,2 +1,2 @@
-# S-rgio-Eduardo
+# Sérgio-Eduardo
 Information about me and my career.
